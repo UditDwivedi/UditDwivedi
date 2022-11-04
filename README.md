@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UditDwivedi
+- 👀 I’m interested in Game Development, AI and Cyber Security
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on Game Development and AI
+- 📫 How to reach me ; Reach me via my mail id dwivediudja@gmail.com
